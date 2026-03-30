@@ -1,17 +1,12 @@
 <div align="center">
 
-**hi there ig**  
+**HEYYY THEEREEEE**  
 
-![](https://i.pinimg.com/originals/80/e4/a0/80e4a0fa226d35313b906564ee5b1728.gif)  
+![](file:///E:/%D0%B3%D1%8B%D1%8B%D1%82%D1%85%D0%B0%D0%B0%D0%B0%D0%B0%D0%B1/photo_2026-03-29_18-15-29.jpg)  
 
-RUS/ENG  
+_skitzo ;; 4teen ;; she/her_
 
-ur probably from ponytown  
+![](https://i.pinimg.com/avif/1200x/c9/4e/ef/c94eef11d2f3f2a1d0d4b6b44403e290.avf)  
 
-_DO NOT_ cover me. its annoying. thank you.  
+**about me**
 
-offtab/afk + w2i  
-
-checkout my strawpage for more info!  
-
-![](https://64.media.tumblr.com/5e8011ca511de1b73e4018f3f6cd32dd/tumblr_inline_moiu7nm3SZ1qz4rgp.png)  
