@@ -10,8 +10,6 @@ if im not on my usual spot im either sleeping or playing with friend on safe rus
 
 ![](https://i.pinimg.com/736x/ee/fe/89/eefe89e637ede5e81f57c287f84cd141.jpg)  
 
-![]([[https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2f0298c8-6e53-4d8c-8c3f-4555409a531a/dgqmmqs-129b4abd-4b0c-4758-b5ff-dc0a9138f694.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8yZjAyOThjOC02ZTUzLTRkOGMtOGMzZi00NTU1NDA5YTUzMWEvZGdxbW1xcy0xMjliNGFiZC00YjBjLTQ3NTgtYjVmZi1kYzBhOTEzOGY2OTQucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.32c6NcWcH-vRzGmElZfGcbW4C1bG4z4SEN7qr8v6ax4](https://64.media.tumblr.com/483bbee82bde735ddf01af37da340af9/3c9d9a7ba7fbc143-2e/s400x600/fdc36966cc0332873b0ecb89ad1e2107fee54c6d.gifv)](https://64.media.tumblr.com/be09668f10180458ee5d77168964dbde/3c9d9a7ba7fbc143-52/s500x750/cf12179097bf2dbd768d9ac078e13ac7ac5bff3d.gifv))  
-
 _tcc ;; antis dni_
 
 **IF YOU DON'T LIKE SOMETHING ABOUT ME JS IGNOREEE!!!!I BLOCK FREELYY BOOHOO!!!!**
